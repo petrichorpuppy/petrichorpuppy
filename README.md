@@ -8,6 +8,8 @@ DNIs are : homophobes, transphobes, zoos, pedos, problematic people, racists, li
 
 You can sign my atabook here! petrichorpuppy.atabook.org
 
+Oomfies : @PIanetlords @Twixxel-lesgo
+
 I love blinkies, and I collect them!
 
 <img width="150" height="20" alt="1087" src="https://github.com/user-attachments/assets/69d5aded-efaa-46bd-9a0f-85ff0c97b878" />
