@@ -4,9 +4,11 @@ Hello, I'm Micah !!
 
 I use he/him prns.
 
-I really like Minecraft. I love to PvP. I also like USMP and LSSMP!
+I have like autism or smth idk there's something wrong with me in the head
 
-DNIs are : homophobes, transphobes, zoos, pedos, problematic people, racists, literally any bigots. 
+I really like Minecraft. I love to PvP. I also like USMP and LSSMP! I might be hyperfixated permanently on minecraft guh
+
+DNIs are : homophobes, transphobes, zoos, pedos, problematic people, racists, literally any bigots. also dni darkshippers, pros proshippers, uh incest supporters eww?? like yeah no ew. I made the mistake of inting with 1 without reading their profile and I'm scarred for life I need therapy???? guhhh
 
 You can sign my atabook here! petrichorpuppy.atabook.org
 
