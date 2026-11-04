@@ -1,3 +1,5 @@
+Please visit my pronouns.page to see my triggers and discomforts before you int, thanks!! xoxo
+
 Hello, I'm Micah !!
 
 I use he/him prns.
