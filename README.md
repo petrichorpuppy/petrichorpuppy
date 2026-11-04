@@ -1,3 +1,7 @@
+#ABSOLUTELYGOINGTOHELLWHENIDIE
+
+uh fml i think you can tell the kind of person i am just by this stupid description 
+
 Please visit my pronouns.page to see my triggers and discomforts before you int, thanks!! xoxo
 
 hi if I do something wrong I'll scramble to fix it faster than I did try to fix my addiction to cutting myself hi im getting angsty again fuck being an emo teenager guhhhhh grrrr >:(((( im so mad grrr >:((((
