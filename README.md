@@ -1,19 +1,18 @@
 Please visit my pronouns.page to see my triggers and discomforts before you int, thanks!! xoxo
 
-Hello, I'm Micah !!
+hi if I do something wrong I'll scramble to fix it faster than I did try to fix my addiction to cutting myself hi im getting angsty again fuck being an emotional teenager guhhhhh grrrr >:(((( im so mad grrr >:((((
 
-I use he/him prns.
+hi. im micah.
 
-I have like autism or smth idk there's something wrong with me in the head
+i use he/him prns.
 
-I really like Minecraft. I love to PvP. I also like USMP and LSSMP! I might be hyperfixated permanently on minecraft guh
+i have like autism or some shit idk there's something wrong with me in the head
 
-DNIs are : homophobes, transphobes, zoos, pedos, problematic people, racists, literally any bigots. also dni darkshippers, proshippers, uh incest supporters eww?? like yeah no ew. I made the mistake of inting with 1 without reading their profile and I'm scarred for life I need therapy???? guhhh
+ really like Minecraft. i love to PvP. i also like USMP and LSSMP. i might be hyperfixated permanently on minecraft guh
 
-You can sign my atabook here! petrichorpuppy.atabook.org
+dnis are : homophobes, transphobes, zoos, pedos, problematic people, racists, literally any bigots. also dni darkshippers, proshippers, uh incest supporters eww?? like yeah no ew. I made the mistake of inting with 1 without reading their profile and I'm scarred for life I need therapy???? guhhh
 
-
-I love blinkies, and I collect them!
+blinkies blinkies blinkiswe blinekeidna guhhhhhjhh fmllll I'll just jump ok bye 
 
 <img width="150" height="20" alt="1087" src="https://github.com/user-attachments/assets/69d5aded-efaa-46bd-9a0f-85ff0c97b878" />
 <img width="150" height="20" alt="1088" src="https://github.com/user-attachments/assets/cf65590e-c459-4329-90c1-d6772063846a" />
