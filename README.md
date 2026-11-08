@@ -1,3 +1,5 @@
+i love science i love science im gonna drink sulfuric acid minecraft drinking sound dies
+
 #ABSOLUTELYGOINGTOHELLWHENIDIE
 
 uh fml i think you can tell the kind of person i am just by this stupid description 
